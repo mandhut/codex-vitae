@@ -5,13 +5,18 @@ A thorough notes about what I think about, what makes me think about it in the f
 - Since 2018, I have been trying to appreciate people around me more by telling them exactly what makes me respect/like them in the first place. Something specific like, "I appreciate how you're always answering my question with a thorough, detailed, and kind answer.", "I see how you're always taking care of people around you and how you're always remembering the first time/moment you meet them, what they said at that time, what they did.", "I admire how you're always trying to be professional, always striving to do your best, paying attention to your linkedin network and profile.". I know people don't usually say those kind of things in real life, not because they don't want to, but most of the times, because they forget to do so, or maybe because they're afraid people would find them weird, or creepy. I want them to know what a little bravery could do for their life and other people's life. A little appreciation goes a long way.
 - I should really publish a book this year (2019). Self-publish is fine, but I need to produce something. :(
 
-# Mantra
-Words and statements I rephrase in my mind and tell myself every day.
-- Epistemological Modesty is the mantra.
-- I appreciate skill, logic, and kindness. Everything else except those 3 things is blurry to me.
-- Ask more, judge less.
-- In terms of depression, from the book "It's kind of a Funny Story" by Ned Vizzini: life isn't cured. life is managed.
-- The quality you see in people around you, good/bad, most likely are the quality that you hate/like about yourself.
+# Mantras
+Words and statements I rephrase in my mind and tell myself every day. When talking to myself, I sometimes call myself in 'we' plural. Like, a team. There's a team of me that collaborate in order for me to survive this boring world. I don't know why but it soothes me. I don't feel so alone when I do that. 
+- "You don't know about that just yet." - in terms of everything. Epistemological Modesty is the mantra.
+- "Ask more, judge less." - This is what I think when I hear a bad rumor about someone. I try to live by this rule: the first person that should know if I hate him/her is that person itself. This way of thinking is inspired by my late father. Actually, this is his last wise words to me before he passed away: "Don't judge a person, Amanda. Never judge a person.", but hey, you need to judge a person (secretly) in life, so I revise it to my practical use. 
+- "Life isn't cured. life is managed." - in terms of depression and my anxiety disorder, I got it from the book "It's kind of a Funny Story" by Ned Vizzini.
+- "Maybe we just need to take a pee. Or maybe We're just hungry. It's probably just a bad day. Not a bad life." - read the story of Ernest Hemingway's death. I could never see depression the same way anymore.
+- "It doesn't matter what I think, the most important thing is how I react about it."
+- "My social norms and my surroundings should not dictate what and how I think. I could think for myself, thank you."
+- "I'm the writer. I'll tell people what they should think about. Not the other way around." - in terms of writing
+- "Let's just do it and cry/regret/sick about it later." - when I need to take that leap of faith.
+- "It's scary. But we're bored, Amanda." - when I need to do something out of my comfort zone =))
+- "Just punish them in silence." - humans. they could be annoying. I got this from my best friend in university. We discussed about what's the point of expressing our anger to people when they usually just don't care about it. And she told me this: "Just punish them in silence, Man. Don't do something significant, just enough to make yourself happy, like, slow responding their texts, or, stop calling them by their petnames, or distance yourself slowly without telling them so." It's mischievous, and maybe a bit coward in my part, but it fits my personality and it helps to control my mood and I could still maintain the harmony. So why not? 
 
 # Tips
 - Listen to people's story, rephrase their words so they know you're listening, but open your mind for something they don't say. Those unsaid words reveals everything. Learn about microexpression, it's more effective than listening to human's words.
@@ -30,14 +35,16 @@ Words and statements I rephrase in my mind and tell myself every day.
 - E-book before paperback.
 
 # Personality
-> A clown class, I love making people laugh with my (mostly) self-deprecating jokes
-> I prefer my hair tangled and messy. It reminds me of my beloved late grandmother (from my father side). I love so many things about my grandma, her curly hair-bun is one of my favorites.
-> I don't like wearing wristwatch, bangle, short necklace, earrings, ring, and similar items. I can't focus when I'm wearing one (I could tolerate the long necklace though, I have several of those things). As an illustrator (or someone who loves to do illustration) I prefer my hands free from all of those things, including long nails. I always keep my nails short, and I don't wear nail polish--I still find it meaningless.
-> I can't stand strong fragrance. I only have one kind of perfume (my sister bought it for me years ago), which still intact today. I only wear it (one mild spray!) when I'm going to important meeting with client, a marriage ceremony, or dates =)). If I have to go to the hair saloon to cut my hair, I will have to bring my own shampoo, or I will have to rewash my hair by myself later when I'm home because I can't stand the smell of unfamiliar shampoo fragrance. It makes me dizzy and grumpy.
-> I could tolerate lipstick and blush, I could not understand fake eyelashes, foundation, and contouring. Leave my nose alone.
-> I love the facial hair in my legs and hands. Why waxing it?
-? I hate zumba, but I love aerobics. I take aerobic class as a chance to train my memory and kinesthetic skill. Zumba and its ever-changing music and movements make me mad.
-> I don't talk in gym. I go fully anti-social at the gym. I don't go there to talk with someone, I want to be sweaty and feel healthy. I want to read my book or listen to my music when I'm burning my fats off. Talk to me later.
+- A clown class, I love making people laugh with my (mostly) self-deprecating jokes.
+- I prefer my hair tangled and messy. It reminds me of my beloved late grandmother (from my father side). I love so many things about my grandma, her curly hair-bun is one of my favorites.
+- I don't like wearing wristwatch, bangle, short necklace, earrings, ring, and similar items. I can't focus when I'm wearing one (I could tolerate the long necklace though, I have several of those things). As an illustrator (or someone who loves to do illustration) I prefer my hands free from all of those things, including long nails. I always keep my nails short, and I don't wear nail polish, I still find it meaningless.
+- I can't stand strong fragrance. I never bought a perfume in my whole life. I only have one kind of perfume (my sister bought it for me years ago), which still intact today. I only wear it (one mild spray!) when I'm going to important meeting with client, a marriage ceremony, or dates =)). If I have to go to the hair saloon to cut my hair, I will have to bring my own shampoo, or I will have to rewash my hair by myself later when I'm home because I can't stand the smell of unfamiliar scent. It makes me dizzy and grumpy.
+- I could tolerate lipstick and blush, I could not understand fake eyelashes, foundation, and contouring. Leave my nose alone. Let it be small. Let it be round.
+- I love the facial hair of my legs and hands. Why waxing it?
+- I hate zumba, but I love aerobics. I take aerobic class as a chance to train my memory and kinesthetic skill. Zumba and its ever-changing music and movements make me mad.
+- Quality over quantity. There
+- I don't talk in gym. I go fully anti-social at the gym. I don't go there to talk with someone, I want to be sweaty and feel healthy. I want to read my book or listen to my music when I'm burning my fats off. Talk to me later.
+- My body can't tolerate coffee but I love the taste of mocha. Although I love to eat it, cauliflower makes my stomach hurt. I don't like soda. I have abnormal obssession with 
 
 # Why?
 Things I don't understand.
@@ -48,6 +55,9 @@ Things I don't understand.
 - Stiletto heels
 - Hair gel / Hair wax
 - Anti-frizzy hair products
+- Marriage
+- Promise
+- Monogamy
 
 # Defined
 I use several tools to help me (and others) understand myself. Here's my personal opinion about myself, and also the list and results of all the personality tests that I've taken, down to the horoscope and chinese zodiac ;)
@@ -61,7 +71,7 @@ I use several tools to help me (and others) understand myself. Here's my persona
 - Born in August 15th, 1986, I'm a lioness at heart (a leo, that also means I bestow the fire element in my soul - that's what they said) and I also born in the chinese year of the Fire Tiger. I am a canine in fire (that sounds wrong). I do love grilled meat, though, maybe that's why? ;)
 
 # Interest
-My brain, just like everyone else's, scans and retrieves particular information from my surrounding. These are random things, words and field of studies, that hold my interest.
+My brain, just like everyone else's, tend to scan and retrieve particular information from my surrounding. These are random things, words and field of studies, that hold my interest:
 - Biology
 - Brain
 - Neuroscience
@@ -103,9 +113,10 @@ My brain, just like everyone else's, scans and retrieves particular information 
 - Food
 - Pastry
 - Baking
+- Microbiology
 
 # Quotes
-I'm a big fan of quotes. I collect it from everywhere, movie, music, and books. This is a very reason why I prefer ebook better than paperback, because I love to 
+I'm a big fan of quotes. I collect it from everywhere, movie, music, and books. This is a very reason why I prefer ebook better than paperback, because I love to highlight almost every passages that I like in a book. 
 
 # Core Curriculum
 A collection of articles, books, movies, landmarks, famous places, or songs that have influenced me, that I revisit/re-read/re-watch more than once in my life.
