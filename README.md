@@ -154,6 +154,23 @@ My brain, just like everyone else's, tend to scan and retrieve particular inform
 - Baking
 - Microbiology
 
+# Person
+A list of famous persons I respect and admire, for various reasons
+- Freddie Mercury
+- Robin Williams
+- J.M. Barrie
+- T.J. Miller
+- Amy Winehouse
+- Graham Norton
+- Jim Carrey
+- Conan O'Brien
+- Leonardo DiCaprio
+- Tulus - he sings too well >.<
+- Michael Buble
+- Emily Blunt
+- Emma Stone
+- Louis Prima
+
 # Trivia
 - A clown class, I love making people laugh with my (mostly) self-deprecating jokes.
 - I prefer my hair tangled and messy. It reminds me of my beloved late grandmother (from my father side). I love so many things about my grandma, her curly hair-bun is one of my favorites.
@@ -168,6 +185,8 @@ My brain, just like everyone else's, tend to scan and retrieve particular inform
 - My heart goes soft for Leonardo Dicaprio, I watch almost all of his movies. 
 - I always have a thing with Japanese and its culture. 
 - I trust my intuition (sometimes) too much. But like I always said, beat the machine all you want, the patterns are there.
+- My kind of jokes: https://www.youtube.com/watch?v=UwYwnMuYizs, this is why I love Conan O' Brien. 
+- And T.J. Miller https://www.youtube.com/watch?v=Kf9N5AWprG8&t=194s, I watched this several times, laugh every time.
 
 # Defined
 I use several tools to help me (and others) understand myself. Here's my personal opinion about myself, and also the list and results of all the personality tests that I've taken, down to the horoscope and chinese zodiac ;)
