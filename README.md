@@ -1,6 +1,10 @@
 # The Codex Vitae of Amanda Bahraini
 A thorough notes about what I think about, what makes me think about it in the first place, and what I do about it. Should anybody want to make a robot version of me, or a clone of me, or a proxy of me, this is the ultimate cheat sheets ;)
 
+Self-centered, I am. Prepare yourself.
+
+What is codex-vitae? Oh, here you go: https://github.com/busterbenson/public/blob/master/book-of-beliefs.md
+
 # Project
 - Since 2018, I have been trying to appreciate people around me more by telling them exactly what makes me respect/like them in the first place. Something specific like, "I appreciate how you're always answering my question with a thorough, detailed, and kind answer.", "I see how you're always taking care of people around you and how you're always remembering the first time/moment you meet them, what they said at that time, what they did.", "I admire how you're always trying to be professional, always striving to do your best, paying attention to your linkedin network and profile.". I know people don't usually say those kind of things in real life, not because they don't want to, but most of the times, because they forget to do so, or maybe because they're afraid people would find them weird, or creepy. I want them to know what a little bravery could do for their life and other people's life. A little appreciation goes a long way.
 - I should really publish a book this year (2019). Self-publish is fine, but I need to produce something.
@@ -42,6 +46,67 @@ Words and statements I rephrase in my mind and tell myself every day.
 - Sing while cook.
 - Life's too busy to have unreasonable goals. 
 - Always have a timeline. Always set a standard, even if it's related to feelings. Don't let your heart run wild, always try to include logic in your decision. Worst case would be, your brain can't control your heart, but at least you've tried.
+
+# Core Curriculum
+A collection of articles, books, movies, landmarks, famous places, or songs that have influenced me, that I revisit/re-read/re-watch more than once in my life.
+## Article/Video
+- **Zat Rana**. [_Why Everybody Needs a Personal Religion_](https://medium.com/personal-growth/why-everybody-needs-a-personal-religion-304255c9962b)
+- **David Wong**. [_Robin Williams & Why Funny People Kill Themselves_](https://www.cracked.com/quick-fixes/robin-williams-why-funny-people-kill-themselves/)
+- **John Walsh**. [_Being Ernest: John Walsh unravels the mystery behind Hemingway's suicide_](https://www.independent.co.uk/news/people/profiles/being-ernest-john-walsh-unravels-the-mystery-behind-hemingways-suicide-2294619.html)
+- **Brené Brown**. [_The Power of Vulnerability_](https://www.ted.com/talks/brene_brown_on_vulnerability?language=en)
+- **Sarah Kay**. [_If I Should Have a Daughter_](https://www.ted.com/talks/sarah_kay_if_i_should_have_a_daughter)
+- **Sarah Kay**. [_How Many Lives Can You Live?_](https://www.ted.com/talks/sarah_kay_how_many_lives_can_you_live)
+- **Olivia Remes**. [_How to Cope with Anxiety_](https://www.ted.com/talks/olivia_remes_how_to_cope_with_anxiety)
+
+## Books
+- **Mitch Albom**. [_The Five People You Meet in Heaven_](https://www.goodreads.com/book/show/3431.The_Five_People_You_Meet_in_Heaven/)
+- **Yuval Noah Harari**. [_Sapiens: A Brief History of Human Kind_](https://www.goodreads.com/book/show/23692271-sapiens?from_search=true)
+- **Johann Hari**. [_Lost Connections: Uncovering the Real Causes of Depression - and the Unexpected Solutions_](https://www.goodreads.com/book/show/34921573-lost-connections?from_search=true)
+- **Ned Vizzini**. [_It's Kind of a Funny Story_](https://www.goodreads.com/book/show/248704.It_s_Kind_of_a_Funny_Story?ac=1&from_search=true)
+- **Anthony de Mello**. [_Awakening: Conversations with the Masters_](https://www.goodreads.com/book/show/466806.Awakening)
+- **Emily St. John Mandel**. [_Station Eleven_](https://www.goodreads.com/book/show/20170404-station-eleven?ac=1&from_search=true)
+- **Stephen Chbosky**. [_The Perks of Being a Wallflower_](https://www.goodreads.com/book/show/22628.The_Perks_of_Being_a_Wallflower)
+- **Matt Haig**. [_The Humans_](https://www.goodreads.com/book/show/18073307-the-humans)
+- **Greg Behrendt**. [_He's Just Not That Into You: The No-Excuses Truth to Understanding Guys_](https://www.goodreads.com/book/show/10412.He_s_Just_Not_That_Into_You) - messy breakup, 2006. shut up. it helps.
+- **Windry Ramadhina**. [_Memori_](https://www.goodreads.com/book/show/13632491-memori?from_search=true/)
+- **Dee Lestari**. [_Madre_](https://www.goodreads.com/book/show/11924352-madre)
+- **Dee Lestari**. [_Perahu Kertas_](https://www.goodreads.com/book/show/6765740-perahu-kertas?ac=1&from_search=true)
+- **Dee Lestari**. [_Aroma Karsa_](https://www.goodreads.com/book/show/37830526-aroma-karsa?ac=1&from_search=true)
+- **Dee Lestari**. [_Rectoverso_](https://www.goodreads.com/book/show/4815886-rectoverso)
+
+## Movies & TV Series
+- [_Eternal Sunshine of the Spotless Mind_](https://www.imdb.com/title/tt0338013/)
+- [_Little Miss Sunshine_](https://www.imdb.com/title/tt0449059/?ref_=nv_sr_1?ref_=nv_sr_1)
+- [_The Perks of Being a Wallflower_](https://www.imdb.com/title/tt1659337/?ref_=nv_sr_1?ref_=nv_sr_1)
+- [_How to Train Your Dragon 1_](https://www.imdb.com/title/tt0892769/?ref_=fn_al_tt_1)
+- [_How to Train Your Dragon 2_](https://www.imdb.com/title/tt1646971/?ref_=fn_al_tt_5)
+- [_About Time_](https://www.imdb.com/title/tt2194499/?ref_=nv_sr_1?ref_=nv_sr_1)
+- [_Cloud Atlas_](https://www.imdb.com/title/tt1371111/?ref_=nv_sr_1?ref_=nv_sr_1)
+- [_Arrival_](https://www.imdb.com/title/tt2543164/?ref_=nv_sr_1?ref_=nv_sr_1)
+- [_Her_](https://www.imdb.com/title/tt1798709/?ref_=nv_sr_2?ref_=nv_sr_2)
+- [_Butterfly Effect_](https://www.imdb.com/title/tt0289879/?ref_=nv_sr_1?ref_=nv_sr_1)
+- [_The Big Sick_](https://www.imdb.com/title/tt5462602/?ref_=nv_sr_1?ref_=nv_sr_1)
+- [_The Rise of the Planet of the Apes_](https://www.imdb.com/title/tt1318514/?ref_=nv_sr_1?ref_=nv_sr_1)
+- [_The Dawn of the Planet of the Apes_](https://www.imdb.com/title/tt2103281/?ref_=nv_sr_1?ref_=nv_sr_1)
+- [_The War of the Planet of the Apes_](https://www.imdb.com/title/tt3450958/?ref_=nv_sr_4?ref_=nv_sr_4)
+- [_Blade Runner 2049_](https://www.imdb.com/title/tt1856101/?ref_=nv_sr_1?ref_=nv_sr_1)
+- [_Black Mirror_](https://www.imdb.com/title/tt2085059/?ref_=nv_sr_1?ref_=nv_sr_1)
+- [_Easy A_](https://www.imdb.com/title/tt1282140/?ref_=nv_sr_1?ref_=nv_sr_1) --> one of the best teen romcom ever :D, and I love The Penderghast too much.
+- [_Sex & The City_](https://www.imdb.com/title/tt0159206/?ref_=nv_sr_1?ref_=nv_sr_1)
+- [_Sherlock_](https://www.imdb.com/title/tt1475582/?ref_=nv_sr_1?ref_=nv_sr_1)
+- [_Will & Grace_](https://www.imdb.com/title/tt0157246/?ref_=nv_sr_1?ref_=nv_sr_1)
+- [_How I Met Your Mother_](https://www.imdb.com/title/tt0460649/?ref_=nv_sr_1?ref_=nv_sr_1)
+- [_Love,Death & Robots_](https://www.imdb.com/showtimes/?ref_=nv_tp_sh_3)
+- [_The Great Mouse Detective_](https://www.imdb.com/title/tt0091149/?ref_=nv_sr_1?ref_=nv_sr_1)
+- [_I, Tonya_](https://www.imdb.com/title/tt5580036/?ref_=nv_sr_1?ref_=nv_sr_1)
+- [_Inside Out_](https://www.imdb.com/title/tt2096673/?ref_=nv_sr_1?ref_=nv_sr_1)
+- [_Jungle Book_](https://www.imdb.com/title/tt0061852/?ref_=nv_sr_3?ref_=nv_sr_3)
+- [_Finding Neverland_](https://www.imdb.com/title/tt0308644/?ref_=fn_al_tt_1)
+- [_The Handmaid's Tale_](https://www.imdb.com/title/tt5834204/?ref_=nv_sr_1?ref_=nv_sr_1)
+- [_Infernal Affairs_](https://www.imdb.com/title/tt0338564/?ref_=nv_sr_1?ref_=nv_sr_1)
+- [_Catch Me if You Can_](https://www.imdb.com/title/tt0264464/?ref_=nv_sr_1?ref_=nv_sr_1) --> whenever I need that confidence boost, I remind myself of this movie :D
+- [_28 Weeks Later_](https://www.imdb.com/title/tt0463854/?ref_=fn_al_tt_1)
+- [_Ada Apa Dengan Cinta?_](https://www.imdb.com/title/tt0307920/?ref_=nv_sr_1?ref_=nv_sr_1)
 
 # Interest
 My brain, just like everyone else's, tend to scan and retrieve particular information from my surrounding. These are random things, words and field of studies, that hold my interest:
@@ -112,64 +177,3 @@ I use several tools to help me (and others) understand myself. Here's my persona
 - 4-Personalities test: Once a Sanguine-Plegmatic (2004), not interested in re-taking the test.
 - My IQ test results varied from 124, 127, 128 and 131. I think my last IQ test is in 2004 (before I got into the university).
 - Born in August 15th, 1986, I'm a lioness at heart (a leo, that also means I bestow the fire element in my soul - that's what they said) and I also born in the chinese year of the Fire Tiger. I am a canine in fire (that sounds wrong). I do love grilled meat, though, maybe that's why? ;)
-
-# Core Curriculum
-A collection of articles, books, movies, landmarks, famous places, or songs that have influenced me, that I revisit/re-read/re-watch more than once in my life.
-## Article/Video
-- **Zat Rana**. [_Why Everybody Needs a Personal Religion_](https://medium.com/personal-growth/why-everybody-needs-a-personal-religion-304255c9962b)
-- **David Wong**. [_Robin Williams & Why Funny People Kill Themselves_](https://www.cracked.com/quick-fixes/robin-williams-why-funny-people-kill-themselves/)
-- **John Walsh**. [_Being Ernest: John Walsh unravels the mystery behind Hemingway's suicide_](https://www.independent.co.uk/news/people/profiles/being-ernest-john-walsh-unravels-the-mystery-behind-hemingways-suicide-2294619.html)
-- **Brené Brown**. [_The Power of Vulnerability_](https://www.ted.com/talks/brene_brown_on_vulnerability?language=en)
-- **Sarah Kay**. [_If I Should Have a Daughter_](https://www.ted.com/talks/sarah_kay_if_i_should_have_a_daughter)
-- **Sarah Kay**. [_How Many Lives Can You Live?_](https://www.ted.com/talks/sarah_kay_how_many_lives_can_you_live)
-- **Olivia Remes**. [_How to Cope with Anxiety_](https://www.ted.com/talks/olivia_remes_how_to_cope_with_anxiety)
-
-## Books
-- **Mitch Albom**. [_The Five People You Meet in Heaven_](https://www.goodreads.com/book/show/3431.The_Five_People_You_Meet_in_Heaven/)
-- **Yuval Noah Harari**. [_Sapiens: A Brief History of Human Kind_](https://www.goodreads.com/book/show/23692271-sapiens?from_search=true)
-- **Johann Hari**. [_Lost Connections: Uncovering the Real Causes of Depression - and the Unexpected Solutions_](https://www.goodreads.com/book/show/34921573-lost-connections?from_search=true)
-- **Ned Vizzini**. [_It's Kind of a Funny Story_](https://www.goodreads.com/book/show/248704.It_s_Kind_of_a_Funny_Story?ac=1&from_search=true)
-- **Anthony de Mello**. [_Awakening: Conversations with the Masters_](https://www.goodreads.com/book/show/466806.Awakening)
-- **Emily St. John Mandel**. [_Station Eleven_](https://www.goodreads.com/book/show/20170404-station-eleven?ac=1&from_search=true)
-- **Stephen Chbosky**. [_The Perks of Being a Wallflower_](https://www.goodreads.com/book/show/22628.The_Perks_of_Being_a_Wallflower)
-- **Matt Haig**. [_The Humans_](https://www.goodreads.com/book/show/18073307-the-humans)
-- **Greg Behrendt**. [_He's Just Not That Into You: The No-Excuses Truth to Understanding Guys_](https://www.goodreads.com/book/show/10412.He_s_Just_Not_That_Into_You) - messy breakup, 2006. shut up. it helps.
-- **Windry Ramadhina**. [_Memori_](https://www.goodreads.com/book/show/13632491-memori?from_search=true/)
-- **Dee Lestari**. [_Madre_](https://www.goodreads.com/book/show/11924352-madre)
-- **Dee Lestari**. [_Perahu Kertas_](https://www.goodreads.com/book/show/6765740-perahu-kertas?ac=1&from_search=true)
-- **Dee Lestari**. [_Aroma Karsa_](https://www.goodreads.com/book/show/37830526-aroma-karsa?ac=1&from_search=true)
-- **Dee Lestari**. [_Rectoverso_](https://www.goodreads.com/book/show/4815886-rectoverso)
-
-## Movies & TV Series
-- [_Eternal Sunshine of the Spotless Mind_](https://www.imdb.com/title/tt0338013/)
-- [_Little Miss Sunshine_](https://www.imdb.com/title/tt0449059/?ref_=nv_sr_1?ref_=nv_sr_1)
-- [_The Perks of Being a Wallflower_](https://www.imdb.com/title/tt1659337/?ref_=nv_sr_1?ref_=nv_sr_1)
-- [_How to Train Your Dragon 1_](https://www.imdb.com/title/tt0892769/?ref_=fn_al_tt_1)
-- [_How to Train Your Dragon 2_](https://www.imdb.com/title/tt1646971/?ref_=fn_al_tt_5)
-- [_About Time_](https://www.imdb.com/title/tt2194499/?ref_=nv_sr_1?ref_=nv_sr_1)
-- [_Cloud Atlas_](https://www.imdb.com/title/tt1371111/?ref_=nv_sr_1?ref_=nv_sr_1)
-- [_Arrival_](https://www.imdb.com/title/tt2543164/?ref_=nv_sr_1?ref_=nv_sr_1)
-- [_Her_](https://www.imdb.com/title/tt1798709/?ref_=nv_sr_2?ref_=nv_sr_2)
-- [_Butterfly Effect_](https://www.imdb.com/title/tt0289879/?ref_=nv_sr_1?ref_=nv_sr_1)
-- [_The Big Sick_](https://www.imdb.com/title/tt5462602/?ref_=nv_sr_1?ref_=nv_sr_1)
-- [_The Rise of the Planet of the Apes_](https://www.imdb.com/title/tt1318514/?ref_=nv_sr_1?ref_=nv_sr_1)
-- [_The Dawn of the Planet of the Apes_](https://www.imdb.com/title/tt2103281/?ref_=nv_sr_1?ref_=nv_sr_1)
-- [_The War of the Planet of the Apes_](https://www.imdb.com/title/tt3450958/?ref_=nv_sr_4?ref_=nv_sr_4)
-- [_Blade Runner 2049_](https://www.imdb.com/title/tt1856101/?ref_=nv_sr_1?ref_=nv_sr_1)
-- [_Black Mirror_](https://www.imdb.com/title/tt2085059/?ref_=nv_sr_1?ref_=nv_sr_1)
-- [_Easy A_](https://www.imdb.com/title/tt1282140/?ref_=nv_sr_1?ref_=nv_sr_1) --> one of the best teen romcom ever :D, and I love The Penderghast too much.
-- [_Sex & The City_](https://www.imdb.com/title/tt0159206/?ref_=nv_sr_1?ref_=nv_sr_1)
-- [_Sherlock_](https://www.imdb.com/title/tt1475582/?ref_=nv_sr_1?ref_=nv_sr_1)
-- [_Will & Grace_](https://www.imdb.com/title/tt0157246/?ref_=nv_sr_1?ref_=nv_sr_1)
-- [_How I Met Your Mother_](https://www.imdb.com/title/tt0460649/?ref_=nv_sr_1?ref_=nv_sr_1)
-- [_Love,Death & Robots_](https://www.imdb.com/showtimes/?ref_=nv_tp_sh_3)
-- [_The Great Mouse Detective_](https://www.imdb.com/title/tt0091149/?ref_=nv_sr_1?ref_=nv_sr_1)
-- [_I, Tonya_](https://www.imdb.com/title/tt5580036/?ref_=nv_sr_1?ref_=nv_sr_1)
-- [_Inside Out_](https://www.imdb.com/title/tt2096673/?ref_=nv_sr_1?ref_=nv_sr_1)
-- [_Jungle Book_](https://www.imdb.com/title/tt0061852/?ref_=nv_sr_3?ref_=nv_sr_3)
-- [_Finding Neverland_](https://www.imdb.com/title/tt0308644/?ref_=fn_al_tt_1)
-- [_The Handmaid's Tale_](https://www.imdb.com/title/tt5834204/?ref_=nv_sr_1?ref_=nv_sr_1)
-- [_Infernal Affairs_](https://www.imdb.com/title/tt0338564/?ref_=nv_sr_1?ref_=nv_sr_1)
-- [_Catch Me if You Can_](https://www.imdb.com/title/tt0264464/?ref_=nv_sr_1?ref_=nv_sr_1) --> whenever I need that confidence boost, I remind myself of this movie :D
-- [_28 Weeks Later_](https://www.imdb.com/title/tt0463854/?ref_=fn_al_tt_1)
-- [_Ada Apa Dengan Cinta?_](https://www.imdb.com/title/tt0307920/?ref_=nv_sr_1?ref_=nv_sr_1)
