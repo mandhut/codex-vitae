@@ -164,7 +164,7 @@ My brain, just like everyone else's, tend to scan and retrieve particular inform
 - I'm a big fan of quotes. I collect it from everywhere, movie, music, and books. This is a very reason why I prefer ebook better than paperback, because I love to highlight almost every passages that I like in a book. Btw, here's my collection of quotes in Pinterest: https://id.pinterest.com/mandhut/quotes/
 - Warm food/beverages, cold vacation places = my definition of a perfect holiday
 - Mountain over beach. Eat porridge as it is, do not stir. Night drive is the best. So does roadtrip.
-- If I like you, chances are, I wish I could pick a needle in your brain and see what happens next.
+- If I like you, chances are, I wish I could stick a needle in your brain and see what happens next.
 - My heart goes soft for Leonardo Dicaprio, I watch almost all of his movies. 
 - I always have a thing with Japanese and its culture. 
 - I trust my intuition (sometimes) too much. But like I always said, beat the machine all you want, the patterns are there.
