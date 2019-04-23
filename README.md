@@ -29,8 +29,8 @@ Words and statements I rephrase in my mind and tell myself every day.
 - **Everything changes**. People change. You change. Your environment changes. Memories fade. Health deteriorates. Relationship breaks. But on the other hand, something else blooms when another thing dies, death is necessary for something else to born into this world, for someone to grow, to learn new things. So instead of thinking too much about what you should do to preserve everything you have right now, try to enjoy the present moment instead. Don't let your fear of the unknown future and painful past prevent you from enjoying this little time that you have.
 - Begging gets you nowhere. Fretting gives you nothing. **Take charge of your own life**, catch your own dreams. Don't wait for anybody to be angry/sad/happy for you, you can do that for yourself.
 - Assume that good and evil exist, **we are all both good and evil**. There are no such thing as all-good person and all-evil person. We need those two to survive. Embrace your not-so-saint side. Talk with your demon, be friend with it. Remember Naruto and his kyuubi (ok. this sounds childish). Your demon is part of you, it's the embodiment of your anger, your sadness, your sorrow, and your pain. Learn how to cooperate with it, listen to its demands, know when it's triggered, and build your life around it. Don't hate it. Embrace it. Admit that the demon exists within you.
-- When making a big decision, **give 4 months** to think before actually decide anything. Let most of your brain cells rebuilt, let your body flush out all the bad stuffs, toxic and maybe imbalance hormones, and think again. 
-- When trying to forget someone, heal a severe broken heart, build a new version of self, give yourself a solid **7 years timeline**.
+- When making a big decision, **give 4 months** to think before actually decide anything. Let most of your brain cells rebuild, let your body flushes out all the bad stuffs, toxic and maybe imbalance hormones, and think again. 
+- When trying to forget someone, heal a severe broken heart, build a new version of self, **give yourself a solid 7 years timeline**.
 - If you can't feel content of being alone with yourself, you should never blame others for not being able to make you content/happy.
 - Stop trying to think that the goal of a relationship (whether is a friendship or romantic ones) is to fill an empty spot in your heart, try to fill other's instead. It's much easier that way.
 - You can't share an empty cup. If you want to make someone else happy, you should prepare yourself first. Be happy with youself first.
@@ -75,6 +75,7 @@ A collection of articles, books, movies, landmarks, famous places, or songs that
 ## Movies & TV Series
 - [_Eternal Sunshine of the Spotless Mind_](https://www.imdb.com/title/tt0338013/)
 - [_Little Miss Sunshine_](https://www.imdb.com/title/tt0449059/?ref_=nv_sr_1?ref_=nv_sr_1)
+- [_Frances Ha_](https://www.imdb.com/title/tt2347569/) --> my view and struggle about adulthood
 - [_The Perks of Being a Wallflower_](https://www.imdb.com/title/tt1659337/?ref_=nv_sr_1?ref_=nv_sr_1)
 - [_How to Train Your Dragon 1_](https://www.imdb.com/title/tt0892769/?ref_=fn_al_tt_1)
 - [_How to Train Your Dragon 2_](https://www.imdb.com/title/tt1646971/?ref_=fn_al_tt_5)
@@ -166,6 +167,7 @@ My brain, just like everyone else's, tend to scan and retrieve particular inform
 - If I like you, chances are, I wish I could pick a needle in your brain and see what happens next.
 - My heart goes soft for Leonardo Dicaprio, I watch almost all of his movies. 
 - I always have a thing with Japanese and its culture. 
+- I trust my intuition (sometimes) too much. But like I always said, beat the machine all you want, the patterns are there.
 
 # Defined
 I use several tools to help me (and others) understand myself. Here's my personal opinion about myself, and also the list and results of all the personality tests that I've taken, down to the horoscope and chinese zodiac ;)
@@ -178,4 +180,4 @@ I use several tools to help me (and others) understand myself. Here's my persona
 - 4-Personalities test: Once a Sanguine-Plegmatic (2004), not interested in re-taking the test.
 - My IQ test results varied from 120 to 133? I guess I'm just so-so. I think my last IQ test is in 2004 (before I got into the university).
 - Born in August 15th, 1986, I'm a lioness at heart (a leo, that also means I bestow the fire element in my soul - that's what they said) and I also born in the chinese year of the Fire Tiger. I am a canine in fire (that sounds wrong). I do love grilled meat, though, maybe that's why? ;)
-- I trust my intuition (sometimes) too much. But like I always said, beat the machine all you want, the patterns are there.
+
