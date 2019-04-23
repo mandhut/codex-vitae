@@ -170,6 +170,8 @@ A list of famous persons I respect and admire, for various reasons
 - Emily Blunt
 - Emma Stone
 - Louis Prima
+- Oprah Winfrey
+- Anna Olson
 
 # Trivia
 - A clown class, I love making people laugh with my (mostly) self-deprecating jokes.
