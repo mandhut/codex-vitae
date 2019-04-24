@@ -43,7 +43,9 @@ Words and statements I rephrase in my mind and tell myself every day.
 - Cook pasta like an Italian (that means: boil it as salty as the mediterannian sea), prepare sushi like a Japanese (fresh is the key), and always have your go-to recipe (mine would be fried vermicelli). **There's always a better way to do things in life**. Find it, execute it like a pro.
 - Sing while cook.
 - Life's too busy to have unreasonable goals. 
-- Always have a timeline. Always set a standard, even if it's related to feelings. Don't let your heart run (that) wild, always try to include logic in your decision. Worst case would be your brain can't control your heart, and you're doomed to a heartache, but at least you've tried.
+- Sleep for a minimum of 6 hours. Sleep before 11 pm every night. Get yourself a healthy dose of morning sun (between 6 to 8 am). Eat different kind of food every day to get all the nutritions you need. Reduce fat and oil, eat lots of boiled, grilled, and steamed food. Eat colorful food. Eat lots lots of fruit and vegetable. Drink a minimum of 2 litres of mineral water every day. 
+- Invest in a healthy skin. Don't find a way to hide your age. Find a way to age gracefully.
+- Always have a timeline. Always set a standard, even if it's related to feelings. Don't let your heart run (that) wild, always try to include logic in your decision. Worst case would be your brain can't control your feelings, and you're doomed for a heartache, but at least you've tried.
 
 # Core Curriculum
 A collection of articles, books, movies, landmarks, famous places, or songs that have influenced me, that I revisit/re-read/re-watch more than once in my life.
