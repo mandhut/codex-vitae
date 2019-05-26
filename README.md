@@ -61,6 +61,7 @@ A collection of articles, books, movies, landmarks, famous places, or songs that
 ## Books
 - **Mitch Albom**. [_The Five People You Meet in Heaven_](https://www.goodreads.com/book/show/3431.The_Five_People_You_Meet_in_Heaven/)
 - **Yuval Noah Harari**. [_Sapiens: A Brief History of Human Kind_](https://www.goodreads.com/book/show/23692271-sapiens?from_search=true)
+- **Kevin Simler & Robin Hanson**. [_The Elephant in The Brain_] (https://www.goodreads.com/book/show/28820444-the-elephant-in-the-brain)
 - **Johann Hari**. [_Lost Connections: Uncovering the Real Causes of Depression - and the Unexpected Solutions_](https://www.goodreads.com/book/show/34921573-lost-connections?from_search=true)
 - **Ned Vizzini**. [_It's Kind of a Funny Story_](https://www.goodreads.com/book/show/248704.It_s_Kind_of_a_Funny_Story?ac=1&from_search=true)
 - **Anthony de Mello**. [_Awakening: Conversations with the Masters_](https://www.goodreads.com/book/show/466806.Awakening)
@@ -197,7 +198,6 @@ I use several tools to help me (and others) understand myself. Here's my persona
 - Always a child at heart, I do think that I'm suffered from a mild version of Peter-Pan syndrome. Growing up sucks. Paying bills sucks.
 - I have anxiety disorder, I build my life around it, prepare myself for it, so I could retract and rejuvenate whenever the panic hits.
 - MBTI Test: Once an ENFP (2005?), then an INFP (2010?), and now I am a proud INFJ (since 2015 if I'm not mistaken). According to mypersonality.info, I am 95% introvert, 84% intuitive, 58% Feeling, and 58% Judging, and I am more on the turbulence side, so I'm an INFJ-T ;).
-- I'm a sapiosexual and demisexual. Sapiodemisexual? 
 - I fall into the range of hypersensitive person (HSP). I hate loud noises and bright lights. I especially hate white lights, I only use yellow lights in my room.
 - Also, according to mypersonality.info, my 5 top personal intelligences are Musical (85 - but I'm not a musician, maybe I should become one), Logical (75), Intrapersonal (75), Visual (70) and Linguistic (65).
 - 4-Personalities test: Once a Sanguine-Plegmatic (2004), not interested in re-taking the test.
